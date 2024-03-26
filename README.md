@@ -11,10 +11,10 @@ Out of all the shitty coins out there, POO coin really stinks up the place!
  - raise funds by selling [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
  - stop minting new NFTs
  - finalize POO token meta and revoke ownwership
- - 30% POO/TON liquidity pool backed by 95% NFT sale
+ - 30% POO/TON liquidity pool backed by 95% NFT sales
  - burn LP tokens
- - airdrop 35% POO TON jettons to NFT holders
  - lock 30% POO for future airdrops to NFT holders
+ - airdrop 35% POO TON jettons to NFT holders
 
 Alright, buckle up and let's find out how high that stinky POO coin can soar!
 
