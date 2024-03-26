@@ -8,8 +8,8 @@ EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
 Out of all the shitty coins out there, POO coin really stinks up the place!
 
 ### POO current roadmap aka shittynomics
- - raise funds by selling [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
- - stop minting new NFTs
+ - raise funds selling [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
+ - stop minting new NFTs after community votes desired initial market cap reached
  - finalize POO token meta and revoke ownwership
  - 30% POO/TON liquidity pool backed by 95% NFT sales
  - burn LP tokens
