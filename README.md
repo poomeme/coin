@@ -13,8 +13,9 @@ Out of all the shitty coins out there, POO coin really stinks up the place!
  - finalize POO token meta and revoke ownwership
  - 30% POO/TON liquidity pool backed by 95% NFT sales
  - burn LP tokens
- - lock 30% POO for future airdrops to NFT holders
  - airdrop 35% POO TON jettons to NFT holders
+ - lock 30% POO for future airdrops to NFT holders
+
 
 Alright, buckle up and let's find out how high that stinky POO coin can soar!
 
