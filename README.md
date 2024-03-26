@@ -20,4 +20,5 @@ Alright, buckle up and let's find out how high that stinky POO coin can soar!
 
 ## Messages from The Master of POO
 > In the realm of internet sagas, the duty of a master does not lie in the mere administration of communities; Nay! If thou possessest the unbridled courage to embark on this grand quest, forge ahead boldly, and lo, I shall shower you with the mystical links to wondrous communities beyond imagination! Behold, the adventure awaits!
+
 That is, you can create your own POO communities, and I will post links here and on GetGems.io
