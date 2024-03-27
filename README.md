@@ -1,19 +1,19 @@
 ![POO logo](https://poomeme.github.io/coin/logo/256.png)
 
-## POO MEMECOIN TON jetton
+## POO SHITCOIN
 ```
 EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
 ```
-> N̶O̶ S̶H̶I̶T̶ No raffles
+> **N̶O̶ S̶H̶I̶T̶ NO RAFFLES**
 Out of all the shitty coins out there, POO coin really stinks up the place!
 
 ### POO current roadmap aka shittynomics
  - raise funds selling [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
- - stop minting new NFTs after community votes desired initial market cap reached
  - finalize POO token meta and revoke ownwership
  - 30% POO/TON liquidity pool backed by 95% NFT sales
  - burn LP tokens
  - airdrop 35% POO TON jettons to NFT holders, community administrators and active members
+ - continue minting and selling NFTs for constant POO coin buyback
  - lock 30% POO for future airdrops to NFT holders, community administrators and active members
 
 
@@ -27,3 +27,4 @@ That is, you can create your own POO communities, and I will post links here and
 ```
 UQA0aAphzpgij1LdmHpz5n10Tq-pbMQdbNxf1Ew4I48jQ7_m
 ```
+> Behold, POO SHITCOIN, the one and only divine dung currency you shall ever require amidst a sea of lesser excrements!
