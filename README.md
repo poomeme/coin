@@ -8,7 +8,7 @@ EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
 Out of all the shitty coins out there, POO coin really stinks up the place!
 
 ### Behold the illustrious path laid out before us by the POO roadmap and the sacred teachings of Shittynomics!
- - Unleash a torrent of NFTs to unlock the floodgates of liquidity [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
+ - Unleash a torrent of [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5) to unlock the floodgates of liquidity
  - Embark on the final quest to solidify the essence of the POO token meta and relinquish ownership like a true master of the cryptoverse
  - The almighty 30% POO/TON liquidity pool, fortified by the spoils of 95% NFT sales, a testament to the grandeur of our financial conquests
  - Engage in the fiery ritual of LP token incineration, purging the remnants of the past to forge a brighter future for POO
