@@ -1,20 +1,20 @@
 ![POO logo](https://poomeme.github.io/coin/logo/256.png)
 
-## POO SHITCOIN
+## POO SHITCOIN on TON
 ```
 EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
 ```
-> **N̶O̶ S̶H̶I̶T̶ NO RAFFLES**
+> **N̶O̶ S̶H̶I̶T̶ for the coin shall soar to celestial heights without the need for mere raffles to propel its ascent!**
 Out of all the shitty coins out there, POO coin really stinks up the place!
 
-### POO current roadmap aka shittynomics
- - raise funds selling [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
- - finalize POO token meta and revoke ownwership
- - 30% POO/TON liquidity pool backed by 95% NFT sales
- - burn LP tokens
- - airdrop 35% POO TON jettons to NFT holders, community administrators and active members
- - continue minting and selling NFTs for constant POO coin buyback
- - lock 30% POO for future airdrops to NFT holders, community administrators and active members
+### Behold the illustrious path laid out before us by the POO roadmap and the sacred teachings of Shittynomics!
+ - Unleash a torrent of NFTs to unlock the floodgates of liquidity [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
+ - Embark on the final quest to solidify the essence of the POO token meta and relinquish ownership like a true master of the cryptoverse
+ - The almighty 30% POO/TON liquidity pool, fortified by the spoils of 95% NFT sales, a testament to the grandeur of our financial conquests
+ - Engage in the fiery ritual of LP token incineration, purging the remnants of the past to forge a brighter future for POO
+ - Bestow upon the chosen few the divine gift of 35% POO TON jettons through a majestic airdrop, honoring the NFT holders, community administrators, and valiant active members!
+ - Persist in the creation and sale of NFTs to fuel the eternal cycle of POO coin buyback, ensuring a prosperous and unending journey towards greatness
+ - Seal away 30% of the sacred POO reserves for future airdrops to be bestowed upon the NFT holders, esteemed community administrators, and dedicated active members, ensuring their continued prosperity and loyalty!
 
 
 Alright, buckle up and let's find out how high that stinky POO coin can soar!
