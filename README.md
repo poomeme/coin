@@ -22,13 +22,12 @@ EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
  - ✅ 100M Total supply. Embark on the final quest to solidify the essence of the POO token meta and relinquish ownership like a true master of the cryptoverse
  - ✅ The almighty 70% POO/TON liquidity pool, fortified by the Master's own 300 TON, a testament to the grandeur of our financial conquests.
  - ✅ [Lock 100% LP Tokens](https://tonraffles.app/lock/EQBUsJtDPA5mqndnF0JNUPg123CmOm8WD08uE7ou2im20C7e)
+ - Engage in the fiery ritual of LP tokens incineration on unlock date, purging the remnants of the past to forge a brighter future for POO
  - Anticipate the majestic emergence of fecal societies
- - When the coin ascends to great heights, withdraw the sacred initial 300 TON liquidity from the pool, for it is the sole TON that resides within Master's possession
- - Engage in the fiery ritual of remaining LP token incineration, purging the remnants of the past to forge a brighter future for POO
  - ✅ Unleash a torrent of [POO SHITCOIN NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
- - April 17, 2024 Bestow upon the chosen few the divine gift of 15% POO TON jettons through a majestic airdrop, honoring the NFT holders.
+ - April 17, 2024 Bestow upon the chosen few the divine gift of 15% POO TON jettons through a majestic airdrop, honoring the NFT holders. **5M POO for The Master of POO NFT, 3M for NFT #1, 1M for NFT #2, 205K for each of the other NFTs**
  - Persist in the creation and sale of NFTs to fuel the eternal cycle of POO coin buyback, ensuring a prosperous and unending journey towards greatness
- - Seal away 10% of the sacred POO reserves for future marketing, airdrops to be bestowed upon the NFT holders, esteemed community administrators, and dedicated active members, ensuring their continued prosperity and loyalty!
+ - Seal away 10% of the sacred POO reserves for future marketing, burning, airdrops to be bestowed upon the NFT holders, esteemed community administrators, and dedicated active members, ensuring their continued prosperity and loyalty!
  - Set aside a mere 5% of the legendary POO SHITCOIN for the Master's grand collection.
 
 
