@@ -18,7 +18,7 @@ EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
 
 ### POO roadmap and the sacred teachings of Shittynomics!
  - ✅ 100M Total supply. Embark on the final quest to solidify the essence of the POO token meta and relinquish ownership like a true master of the cryptoverse
- - The almighty 70% POO/TON liquidity pool, fortified by the Master's own 300 TON, a testament to the grandeur of our financial conquests
+ - ✅ The almighty 70% POO/TON liquidity pool, fortified by the Master's own 300 TON, a testament to the grandeur of our financial conquests
  - Anticipate the majestic emergence of fecal societies
  - When the coin ascends to great heights, withdraw the sacred initial 300 TON liquidity from the pool, for it is the sole TON that resides within Master's possession
  - Engage in the fiery ritual of remaining LP token incineration, purging the remnants of the past to forge a brighter future for POO
