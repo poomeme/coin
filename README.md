@@ -1,4 +1,4 @@
-![POO logo](https://poomeme.github.io/coin/logo/256.png)
+![POO logo](https://poomeme.github.io/coin/logo/logo-update.png)
 
 ## POO SHITCOIN on TON
 
