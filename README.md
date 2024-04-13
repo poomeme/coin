@@ -1,21 +1,32 @@
 ![POO logo](https://poomeme.github.io/coin/logo/256.png)
 
 ## POO SHITCOIN on TON
+
+**100% PURE SHITCOIN**
+
+Contract Address
 ```
 EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
 ```
-> **N̶O̶ S̶H̶I̶T̶ for the coin shall soar to celestial heights without the need for mere raffles to propel its ascent!**
-Out of all the shitty coins out there, POO coin really stinks up the place!
+> **Behold, POO SHITCOIN, the one and only divine dung currency you shall ever require amidst a sea of lesser excrements!**
 
-### Behold the illustrious path laid out before us by the POO roadmap and the sacred teachings of Shittynomics!
- - Unleash a torrent of [POO NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5) to unlock the floodgates of liquidity
- - Adjust the token supply to harmonize with the sacred waters of initial liquidity
- - Embark on the final quest to solidify the essence of the POO token meta and relinquish ownership like a true master of the cryptoverse
- - The almighty 30% POO/TON liquidity pool, fortified by the spoils of 95% NFT sales, a testament to the grandeur of our financial conquests
- - Engage in the fiery ritual of LP token incineration, purging the remnants of the past to forge a brighter future for POO
- - Bestow upon the chosen few the divine gift of 35% POO TON jettons through a majestic airdrop, honoring the NFT holders, community administrators, and valiant active members!
+- N̶O̶ S̶H̶I̶T̶
+- NO MEMES
+- NO UTILITY
+- NO FAIRLAUNCH
+- NO PRESALES
+
+### POO roadmap and the sacred teachings of Shittynomics!
+ - 100M Total supply. Embark on the final quest to solidify the essence of the POO token meta and relinquish ownership like a true master of the cryptoverse
+ - The almighty 70% POO/TON liquidity pool, fortified by the Master's own 300 TON, a testament to the grandeur of our financial conquests
+ - Anticipate the majestic emergence of fecal societies
+ - When the coin ascends to great heights, withdraw the sacred initial 300 TON liquidity from the pool, for it is the sole TON that resides within Master's possession
+ - Engage in the fiery ritual of remaining LP token incineration, purging the remnants of the past to forge a brighter future for POO
+ - Unleash a torrent of [POO SHITCOIN NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
+ - Bestow upon the chosen few the divine gift of 15% POO TON jettons through a majestic airdrop, honoring the NFT holders, community administrators, and valiant active members!
  - Persist in the creation and sale of NFTs to fuel the eternal cycle of POO coin buyback, ensuring a prosperous and unending journey towards greatness
- - Seal away 30% of the sacred POO reserves for future airdrops to be bestowed upon the NFT holders, esteemed community administrators, and dedicated active members, ensuring their continued prosperity and loyalty!
+ - Seal away 10% of the sacred POO reserves for future marketing, airdrops to be bestowed upon the NFT holders, esteemed community administrators, and dedicated active members, ensuring their continued prosperity and loyalty!
+ - Set aside a mere 5% of the legendary POO SHITCOIN for the Master's grand collection.
 
 
 Alright, buckle up and let's find out how high that stinky POO coin can soar!
@@ -28,4 +39,5 @@ That is, you can create your own POO communities, and I will post links here and
 ```
 UQA0aAphzpgij1LdmHpz5n10Tq-pbMQdbNxf1Ew4I48jQ7_m
 ```
-> Behold, POO SHITCOIN, the one and only divine dung currency you shall ever require amidst a sea of lesser excrements!
+**For the coin shall soar to celestial heights without the need for mere raffles to propel its ascent! Out of all the shitty coins out there, POO coin really stinks up the place!**
+
