@@ -25,9 +25,9 @@ EQApKwCaHMNeXLxljY4PFFJI070Y-aUtt2Y-bIcFqB_s-Aos
  - Engage in the fiery ritual of LP tokens incineration on unlock date, purging the remnants of the past to forge a brighter future for POO
  - Anticipate the majestic emergence of fecal societies
  - ✅ Unleash a torrent of [POO SHITCOIN NFTs](https://getgems.io/collection/EQAgkh1JcNpbnLSs9GgGLaWW5qKt81oVZbDSte4rPZGNUam5)
- - Bestow upon the chosen few the divine gift of 15% SHITCOIN through a majestic airdrop, honoring the NFT holders on April 17, 2024. **5M POO for The Master of POO NFT, 3M for NFT #1, 1M for NFT #2, 205K for other NFTs (Only for NFTs that are not on sale)**
+ - ✅ Bestow upon the chosen few the divine gift of 15% SHITCOIN through a majestic airdrop, honoring the NFT holders on April 17, 2024. **5M POO for The Master of POO NFT, 3M for NFT #1, 1M for NFT #2, 205K for other NFTs (Only for NFTs that are not on sale)**
  - Persist in the creation and sale of NFTs to fuel the eternal cycle of POO coin buyback, ensuring a prosperous and unending journey towards greatness
- - Seal away 10% of the sacred POO reserves for future marketing, burning, airdrops to be bestowed upon the NFT holders, esteemed community administrators, and dedicated active members, ensuring their continued prosperity and loyalty!
+ - Seal away sacred POO reserves for future marketing, burning, airdrops to be bestowed upon the NFT holders, esteemed community administrators, and dedicated active members, ensuring their continued prosperity and loyalty!
  - Set aside a mere 5% of the legendary POO SHITCOIN for the Master's grand collection.
 
 
