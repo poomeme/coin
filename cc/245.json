@@ -1,0 +1,24 @@
+{
+  "image": "https://poomeme.github.io/coin/cc/images/6.png",
+  "name": "CryptoCure Mixture",
+  "description": "This blend didn't quite make the cut in medical trials, so if you're feeling bold enough to give it a shot, get ready for some pleasantly surprising twists and turns!",
+  "attributes": [
+    {
+      "trait_type": "Medical Uses",
+      "value": "BitBlock Blunder"
+    },
+    {
+      "trait_type": "Adverse Effects",
+      "value": "DEX Dread"
+    },
+    {
+      "trait_type": "Taste",
+      "value": "None"
+    },
+    {
+      "trait_type": "Color",
+      "value": "Black"
+    }
+  ],
+  "marketplace": "getgems.io"
+}
