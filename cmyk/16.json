@@ -1,0 +1,6 @@
+﻿{
+  "image": "https://poomeme.github.io/coin/cmyk/k.png",
+  "name": "K",
+  "description": "Проверка кодировки",
+  "attributes": [{ "trait_type": "Цвет", "value": "Черный" }]
+}
